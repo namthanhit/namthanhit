@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Thanh Nam
 - 👀 I’m interested in data analyst
 - 🌱 I’m currently learning information technology
-- 📫 How to reach me: 
-- 😄 Pronouns: ...
-- ⚡ Fun fact:
+- 📫 How to reach me: on Instagram(namthanh.nit)
+- 😄 Pronouns: Me
+- ⚡ Fun fact: I like perfection
